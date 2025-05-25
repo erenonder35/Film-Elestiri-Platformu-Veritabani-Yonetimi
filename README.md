@@ -1,1 +1,0 @@
-# Film-Elestiri-Platformu-Veritabani-Yonetimi
